@@ -1,0 +1,4 @@
+-HI im IHed123 
+-im a coder
+-im tryna become a software developer
+-basically this is it ill update my read me later
